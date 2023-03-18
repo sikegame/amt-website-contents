@@ -10,7 +10,11 @@ Our mission is to become the leading cannabis company in Myanmar, with the goal 
 
 AMT is led by Chief Executive Officer Min Thway (@Michael), who works closely with Smart Medical Development and Cannabis Experts. With a passion for plants and a background in developing beach properties in Myanmar, Min Thway has studied cannabis since the first legalization of cannabis in Asia (Thailand).
 
+## Our Focus
+
 We focus on producing health and medicinal cannabis products according to established regulations. Our products, grown using advanced technologies, the best seeds, and the most suitable natural fertilizers, are designed to penetrate both domestic and international markets. Our target customers include visitors to Thailand and residents who expect to purchase our packaged products, ornamental plants, and visit our edible bar.
+
+## Marketing Plan
 
 Our marketing plan involves building a strong brand name and targeting specific customers, attracting and selling to local customers while focusing on the production and sale of finished products to the international market. We aim to develop a strong brand and positioning, identify and target specific customer segments, break even, and establish partnerships and distribution channels. We also plan to utilize digital marketing, e-commerce, sales promotions, and customer loyalty programs.
 
