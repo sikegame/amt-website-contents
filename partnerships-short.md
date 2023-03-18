@@ -4,11 +4,11 @@ Alternative Medicine Thailand (AMT) believes in the power of collaboration to dr
 
 ## Our partners include:
 
+- Smart Medical Development (SMD): These partnerships facilitate the construction and cultivation of our state-of-the-art facility, utilizing Japanese technology and adhering to strict environmental control standards.
+
 - Pacific Cannovation Group: Working together, we develop FDA-approved cannabis medicine for distribution to medical institutions in Myanmar.
 
 - CannaGen: Our collaboration with CannaGen allows us to leverage their expertise in genetics and cultivation to enhance our product quality.
-
-- Smart Medical Development (SMD) & PACCAN TEAM: These partnerships facilitate the construction and cultivation of our state-of-the-art facility, utilizing Japanese technology and adhering to strict environmental control standards.
 
 - Nakon Rachashima University: Our signed MOA with the university enables us to secure business licenses and approvals for finished product manufacturing.
 
