@@ -6,11 +6,9 @@ AMT is an all-in-one cannabis company, focusing on growing, manufacturing, and d
 
 Our mission is to become the leading cannabis company in Myanmar, with the goal of supplying 90% of the domestic cannabis market. We aim to position ourselves as a key player in the industry, offering extraction facilities and advising the Myanmar government when full legalization is achieved.
 
+## Founder
+
 AMT is led by Chief Executive Officer Min Thway (@Michael), who works closely with Smart Medical Development and Cannabis Experts. With a passion for plants and a background in developing beach properties in Myanmar, Min Thway has studied cannabis since the first legalization of cannabis in Asia (Thailand).
-
-Our company collaborates with Pacific Cannovation Group and CannaGen to form strategic partnerships, positioning ourselves at the forefront of the industry. With an initial funding round of 24 million baht, we aim to raise another 75 million baht in additional funds by the end of 2025. We project to break even after our 24th month in operations and plan to engage 20 additional greenhouses in our projected area. Medicines, oils, and consumer products derived from cannabis will be exported to Myanmar and Japan markets.
-
-AMT is already registered and will grow and sell cannabis on 4.5 Rai (2 acres) of private land located near the Bangkok River in Pak Chong District. We are constructing and cultivating our business using Japanese technology in cooperation with the PACCAN TEAM. Our infrastructure includes a greenhouse, office, electricity, water supply, and dry room. SMD (Smart Medical Development) manages the plantation on 4.5 Rai.
 
 We focus on producing health and medicinal cannabis products according to established regulations. Our products, grown using advanced technologies, the best seeds, and the most suitable natural fertilizers, are designed to penetrate both domestic and international markets. Our target customers include visitors to Thailand and residents who expect to purchase our packaged products, ornamental plants, and visit our edible bar.
 
