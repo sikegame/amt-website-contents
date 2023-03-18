@@ -14,7 +14,7 @@ The indoor air quality is constantly monitored, and advanced systems are in plac
 
 Our production processes are designed to preserve the integrity of the cannabis plant and its valuable compounds. We employ advanced extraction methods to obtain pure and potent cannabis extracts for use in our products. Our state-of-the-art facility is equipped with the latest technology to ensure that our production processes are efficient, consistent, and compliant with all industry standards and regulations.
 
-Our collaboration with the PACCAN TEAM and Smart Medical Development enables us to leverage cutting-edge Japanese technology and expertise in our cultivation and production processes. This partnership ensures that our products are created using the best possible methods, resulting in a superior final product.
+Our collaboration with the PacCan Group and Smart Medical Development enables us to leverage cutting-edge Japanese technology and expertise in our cultivation and production processes. This partnership ensures that our products are created using the best possible methods, resulting in a superior final product.
 
 ## Quality Assurance
 
